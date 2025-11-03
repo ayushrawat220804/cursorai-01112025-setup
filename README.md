@@ -1,0 +1,1 @@
+# cursorai-01112025-setup
